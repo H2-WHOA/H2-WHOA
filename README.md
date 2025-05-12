@@ -9,12 +9,12 @@
 <br />
 <br />
 
-<div align="center"> Hii im shady I'm only on when my friends are but you can whisper me whenever :D my only dni is dont be WEIRD AS HELL! I'll hide if you're annoying 
+<div align="center"> Hii im shady I'm only on when my friends are but you can whisper me whenever :D I like the weird and whimsical. i'll hide if you annoy me
 <br />
 <br />
 <br />
 
-[prns page](https://en.pronouns.page/@00310)
+[prns page](https://en.pronouns.page/@00310) [music](https://open.spotify.com/playlist/5oLVzeiwUJrRtdJVKeSkGH?si=5b0df8749fb34719)
 
 <br />
 

@@ -1,7 +1,7 @@
 
 <div align="center"> 
 
-![mrowp counter on GitHub](https://komarev.com/ghpvc/?username=H2-WHOA)
+![mrowp counter on GitHub](https://komarev.com/ghpvc/?username=H2-WHOA&color=d6265e&label=MEEMOS)
 
 
 ![20250512_073308](https://github.com/user-attachments/assets/191b3569-936f-4cea-8a87-e3467ee2d29e)

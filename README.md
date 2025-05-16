@@ -15,7 +15,7 @@
 <br />
 <br />
 
-<div align="center"> Hii im shady I'm only on when my friends are but you can whisper me whenever :D I'm an adult and I like the weird and whimsical. i'll hide if you annoy me
+<div align="center"> Hii im shady I'm only on when my friends are :D I LOOOOVE yapping so you can talk to mee yippyy yippyy but if i dont reply i might be offtab so just whisper yahhoooo!!! I'm an adult and I like the weird and whimsical. i'll hide if you annoy me
 <br />
 <br />
 <br />

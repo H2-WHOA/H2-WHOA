@@ -20,7 +20,7 @@
 <br />
 <br />
 
-[prns page](https://en.pronouns.page/@00310) [music](https://open.spotify.com/playlist/5oLVzeiwUJrRtdJVKeSkGH?si=5b0df8749fb34719)
+[music](https://open.spotify.com/playlist/5oLVzeiwUJrRtdJVKeSkGH?si=5b0df8749fb34719) I dont know what else to link tbh
 
 <br />
 

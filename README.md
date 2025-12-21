@@ -114,4 +114,8 @@
 
 <p style="text-align: center;"><sub>theres no katamari stamps so im just putting him here hello king of all cosmos (EDIT: i found katamari stamps but he can stay, hello king of all cosmos) </sub></p>
 
+![ezgif-47940db8a3d73af4](https://github.com/user-attachments/assets/b543c0c7-49ad-46e2-9964-7e8a4e1ea08b)
+
+<p style="text-align: center;"><sub>idk where to put him guys i like kenta a lot</sub></p>
+
 

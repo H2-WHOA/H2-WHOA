@@ -15,12 +15,12 @@
 <br />
 <br />
 
-<div align="center"> Hii im shady I'm only on when my friends are :D I'll hide you if you're annoying or weird as hell !! 
+<div align="center"> Hii im shady I'm only on when my friends are :D I'll hide you if you're annoying or weird as hell !! I like splatoon. anything splatton. coroika splatbands idols promokids yupp
 <br />
 <br />
 <br />
 
-[music](https://open.spotify.com/playlist/5oLVzeiwUJrRtdJVKeSkGH?si=5b0df8749fb34719) I dont know what else to link tbh
+[Bluffing damacy]([https://www.youtube.com/watch?v=gJ8K8_sXAZE&list=RDgJ8K8_sXAZE]) I dont know what else to link tbh #streambluffingdamacy
 
 <br />
 

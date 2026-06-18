@@ -37,7 +37,7 @@
 <br />
 <br />
 
-<div align="center"> Hii im shady I'm only on when my friends are :D I'll hide you if you're annoying or weird as hell !! I like splatoon. anything splatoon. coroika splatbands idols promokids yupp
+<div align="center"> Hii im shady I'm only on when my friends are :D I'll hide you if you're annoying or weird as hell !! I like splatoon. anything splatoon. coroika splatbands idols promokids yupp I'm also into FNAF rn #welcomeback2016
  <br />
 <br />
 <br />

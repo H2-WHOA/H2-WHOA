@@ -19,6 +19,7 @@
 
 <div align="center"> Hii im shady  !! I like Splatoon and FNAF right now! more details on strawpage..
 <div align="center"> I block anyone that annoys me. proship dni
+ <div align="center"> Cool  Button  for  links  here
  <br />
 <br />
 <br />

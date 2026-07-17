@@ -38,7 +38,7 @@
 
 
 ![blinkiesCafe-8f](https://github.com/user-attachments/assets/9cedf9de-d056-4cee-8a2d-beb625a820cc) <!--Evil backline main--> ![blinkiesCafe-7H](https://github.com/user-attachments/assets/f3faca90-b9d0-494d-abb8-bfd0a1279443) <!--h2w fan-->![blinkiesCafe-zq](https://github.com/user-attachments/assets/52ebc22b-137c-42c4-9790-db5321396f6d) <!--SIMA-->![ezgif-1964d86c25ac41](https://github.com/user-attachments/assets/5251322e-5d01-4ce5-b293-ab2bf468b3f8) <!--Reanimator-->
-![tumblr_2b0a1adc0af2f39b10b26a2a057040d9_dd995f44_250](https://github.com/user-attachments/assets/26a0d389-4883-46bf-85de-871daa2a8f9e) <!--reshiram fan --> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d907d40b-e5e1-453c-b417-cefe37073991" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d907d40b-e5e1-453c-b417-cefe37073991" />
  <!--foxy fanatic-->
 
 

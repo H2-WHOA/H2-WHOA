@@ -31,7 +31,7 @@
 <br />
 <br />
 
-#streambluffingdamacy also this page is a wip so ill finish soon yup
+#streambluffingdamacy 
 
 <br />
 

@@ -22,6 +22,7 @@
 <div align="center"> Hii im shady  !! I like Splatoon and FNAF right now! more details on strawpage..
  <div align="center"> Feel free to C+H, chat, or take inspo from ponies !! idm ! I'm usually offtab so just whisper me :^D
 <div align="center"> I block anyone that annoys me. proship dni
+  <div align="center"> sign my ata !!! :^]
  <div align="center"> <!--buttons for links go here-->
  <br />
 <br />
@@ -34,7 +35,7 @@
 <br />
 <br />
 
-[#streambluffingdamacy](https://www.youtube.com/watch?v=gJ8K8_sXAZE) sign my ata :^]!
+[#streambluffingdamacy](https://www.youtube.com/watch?v=gJ8K8_sXAZE) 
 
 <br />
 

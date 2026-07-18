@@ -19,7 +19,7 @@
 <br />
 <br />
 
-<div align="center"> Hii im shady  !! I like Splatoon and FNAF right now! more details on strawpage..
+<div align="center"> Hii im shady  !! I like Splatoon and FNAF right now!
  <div align="center"> Feel free to C+H, chat, or take inspo from ponies !! idm ! I'm usually offtab so just whisper me :^D
 <div align="center"> I block anyone that annoys me. proship dni
   <div align="center"> sign my ata !!! :^]

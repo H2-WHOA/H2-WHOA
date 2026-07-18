@@ -4,7 +4,7 @@
 ![mrowp counter on GitHub](https://komarev.com/ghpvc/?username=H2-WHOA&color=d6265e&label=MEEMOS)
 
 
-<img width="629" height="374" alt="Screenshot 2026-07-18 030620" src="https://github.com/user-attachments/assets/959e6bec-92b9-44a6-9500-ba14746f18b2" />
+<img width="929" height="600" alt="Screenshot 2026-07-18 030620" src="https://github.com/user-attachments/assets/959e6bec-92b9-44a6-9500-ba14746f18b2" />
 
 
 

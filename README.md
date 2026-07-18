@@ -80,21 +80,13 @@
 
 
  
+<br />
+
+<br />
 
 
 
 
-
-
-
-
-
-
-
-![ezgif-15d87b37d810db](https://github.com/user-attachments/assets/05ccad94-e6c1-416a-91a1-986e672182e4)
-
-
-<p style="text-align: center;"><sub>theres no katamari stamps so im just putting him here hello king of all cosmos (EDIT: i found katamari stamps but he can stay, hello king of all cosmos) </sub></p>
 
 ![ezgif-47940db8a3d73af4](https://github.com/user-attachments/assets/b543c0c7-49ad-46e2-9964-7e8a4e1ea08b)
 

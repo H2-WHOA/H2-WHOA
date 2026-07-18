@@ -4,7 +4,8 @@
 ![mrowp counter on GitHub](https://komarev.com/ghpvc/?username=H2-WHOA&color=d6265e&label=MEEMOS)
 
 
-<img width="4096" height="3397" alt="awesomeagent4art" src="https://github.com/user-attachments/assets/d07aadaf-0ee8-4970-9c2a-1f3d4b6e15f2" />
+<img width="629" height="374" alt="Screenshot 2026-07-18 030620" src="https://github.com/user-attachments/assets/959e6bec-92b9-44a6-9500-ba14746f18b2" />
+
 
 
 <!-- maybe replace the artwork with something else if you find a cute drawing. this ones still cool-->

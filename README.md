@@ -22,11 +22,11 @@
  <div align="center"> <!--buttons for links go here-->
  <br />
 <br />
+<div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />
-
+𓆝 𓆟 𓆞 <a/ href="https://kurukururock.straw.page"> StrawPage </a> ..... <a/ href="https://artfight.net/~Kurukururock"> Artfight </a> 𓆝 𓆟 𓆞
 <!-- put a table with little links here that go to strawpage and stuff-->
- 
-<div align="center"> 
+<div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />
 <br />
 <br />

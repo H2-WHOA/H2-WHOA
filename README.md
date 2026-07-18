@@ -4,13 +4,14 @@
 ![mrowp counter on GitHub](https://komarev.com/ghpvc/?username=H2-WHOA&color=d6265e&label=MEEMOS)
 
 
-![20250512_073308](https://github.com/user-attachments/assets/191b3569-936f-4cea-8a87-e3467ee2d29e)
+<img width="4096" height="3397" alt="awesomeagent4art" src="https://github.com/user-attachments/assets/d07aadaf-0ee8-4970-9c2a-1f3d4b6e15f2" />
+
 
 <!-- maybe replace the artwork with something else if you find a cute drawing. this ones still cool-->
 
  ![v16ib0](https://github.com/user-attachments/assets/89464ff3-58dc-40ba-a90e-4b46a7ca9252)![tumblr_inline_pdzck52c1E1v11djx_500](https://github.com/user-attachments/assets/93ade16b-ae7d-4fbe-8f2e-642ed274cdeb) ![tumblr_74db7084c61b1cc8e7177e990d112897_28fcd5de_100](https://github.com/user-attachments/assets/69ac423a-b622-46bc-9bf6-03d152fd770b)
 
-(art by spr108fr on twitter)
+(art by [eyerealm](https://twitter.com/eyerealm) on twitter)
 <br />
 
 

@@ -27,7 +27,7 @@
 <br />
 <div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />
-𓆝 𓆟 𓆞 <a/ href="https://kurukururock.straw.page"> StrawPage </a> ..... <a/ href="https://artfight.net/~Kurukururock"> Artfight </a> 𓆝 𓆟 𓆞
+𓆝 𓆟 𓆞 <a/ href="https://kurukururock.straw.page"> StrawPage </a> ..... <a/ href="https://artfight.net/~Kurukururock"> Artfight </a> .....<a/ href="https://h2whoa.atabook.org/"> Atabook </a> 𓆝 𓆟 𓆞
 <!-- put a table with little links here that go to strawpage and stuff-->
 <div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />

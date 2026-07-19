@@ -64,7 +64,7 @@
 <img width="500" height="50" alt="cooltext512302555073631" src="https://github.com/user-attachments/assets/a9ddc60b-4706-42d4-b33f-cbe76aad9c1a" /> <!--title-->
 <br />
  <div align="center"> there's not a lot of michael stamps online so if you find any please link them to me thank you <3
-   <div align="center"> a lot of these stamps are made by me / feature art from friends and mutuals :^]
+   <div align="center"> a lot of these stamps are made by me </3
 <br />
 <img width="497" height="455" alt="13894534_5a7d0-ezgif com-crop" src="https://github.com/user-attachments/assets/3c23933d-bc5b-4c79-a12d-ea2c9f2ea648" /> <!-- i love my boyfriend-->
 

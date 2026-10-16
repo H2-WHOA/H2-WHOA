@@ -28,7 +28,7 @@
 <br />
 <div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />
-𓆝 𓆟 𓆞 <a/ href="https://kurukururock.straw.page"> StrawPage </a> ..... <a/ href="https://en.pronouns.page/@00310"> Prnspage </a> .....<a/ href="https://h2whoa.atabook.org/"> Atabook </a> 𓆝 𓆟 𓆞
+𓆝 𓆟 𓆞 <a/ href="https://kurukururock.straw.page"> StrawPage </a> ..... <a/ href="https://www.youtube.com/watch?v=gJ8K8_sXAZE"> Bluffing Damacy </a> .....<a/ href="https://h2whoa.atabook.org/"> Atabook </a> 𓆝 𓆟 𓆞
 <!-- put a table with little links here that go to strawpage and stuff-->
 <div align="center">  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 <br />

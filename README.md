@@ -18,10 +18,13 @@
 
 <br />
 <br />
-
-<div align="center"> Hii im shady  !! I like Splatoon and FNAF right now!
  <div align="center"> Feel free to C+H, chat, or take inspo from ponies !! idm ! I'm usually offtab so just whisper me :^D
 <div align="center"> I block anyone that annoys me. proship dni
+ <br />
+ <br />
+<div align="center"> Hii im shady  !! I like Splatoon and FNAF right now! 
+ <div align="center"> I'm also very slowly getting into deadlock but dont ask me to play cus I lowkey suck dick I was literally just born (give it a few months #lol) 
+
   <div align="center"> sign my ata !!! :^]
  <div align="center"> <!--buttons for links go here-->
  <br />

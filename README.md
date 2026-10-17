@@ -37,7 +37,9 @@
 [#streambluffingdamacy](https://www.youtube.com/watch?v=gJ8K8_sXAZE) 
 
 <br />
-(I'm also slowly getting into deadlock but Lowkenuinely I was just born so don't ask me to play because I will suck unbelievable amounts of ass, give it a year or something)
+<sub> (I'm also slowly getting into deadlock but Lowkenuinely I was just born so don't ask me to play because I will suck unbelievable amounts of ass, give it a year or something) </sub>
+<br />
+<br />
 
 
 ![blinkiesCafe-8f](https://github.com/user-attachments/assets/9cedf9de-d056-4cee-8a2d-beb625a820cc) <!--Evil backline main--> ![blinkiesCafe-7H](https://github.com/user-attachments/assets/f3faca90-b9d0-494d-abb8-bfd0a1279443) <!--h2w fan-->![blinkiesCafe-zq](https://github.com/user-attachments/assets/52ebc22b-137c-42c4-9790-db5321396f6d) <!--SIMA-->![ezgif-1964d86c25ac41](https://github.com/user-attachments/assets/5251322e-5d01-4ce5-b293-ab2bf468b3f8) <!--Reanimator-->
